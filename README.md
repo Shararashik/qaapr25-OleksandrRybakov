@@ -1,1 +1,0 @@
-# qaapr25-OleksandrRybakov
